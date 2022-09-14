@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @22CS20_abdulloh
+- 👋 Hi, I’m @22CS20_Quvonch 
 - 👀 I’m interested computer programing
 - 🌱 I’m currently learning at Akfa University
 - 💞️ dont need for me 
